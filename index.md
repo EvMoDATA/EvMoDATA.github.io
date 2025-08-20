@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+Trying to show initiative and prove it now.
 
-Maybe say a some things about yourself.
+High School Pitching Coach/CSCS with the goal of learning as much as possible.
 
-Or maybe what you plan to blog about.
+Feel Vs Real Cue Creator 
